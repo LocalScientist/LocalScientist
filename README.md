@@ -32,7 +32,7 @@ P3d0£1L3s
 
 →𝗦𝗢𝗠𝗘← fruitcake shippers
 
-＊┈┈┈┈＊┈┈┈┈＊┈┈┈┈
+＊┈┈┈┈＊┈┈┈┈＊┈┈┈┈                               ![image alt](https://github.com/LocalScientist/LocalScientist/blob/e7dbf6ae19d690b2fed02753861d2b69d0d65438/vimalion%20yixi%20(1).png)
 
 Add my rblx ^_^
 
