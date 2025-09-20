@@ -1,6 +1,6 @@
 ## Hello!!!! ^_^
 ━━━━━━━━━━━━━━━━━━━━━━━━
-https://github.com/LocalScientist/LocalScientist/blob/21eea479a2cf1248adb2101fd39739dac048fe68/7e574bf9d1d7f24c9930eec28da08c34.jpg
+![image alt](https://github.com/LocalScientist/LocalScientist/blob/21eea479a2cf1248adb2101fd39739dac048fe68/7e574bf9d1d7f24c9930eec28da08c34.jpg) 
 
 hiya there! my name is margo! . but you can also call me amy / crumble / toothpaste / marjew / yi xi(kin) / 𝖾𝗆𝗆𝖺
 
