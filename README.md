@@ -57,7 +57,7 @@
 
     ↑
 
-   ^^ 𝖧𝖾𝖺𝗏𝗒 𝗂𝗇𝗍 !          ![image alt](https://github.com/LocalScientist/LocalScientist/blob/f01bcdf90a63c15deb64d4dee9c5b34fd70f30b8/Untitled27_20250922094655.png)
+   ^^ 𝖧𝖾𝖺𝗏𝗒 𝗂𝗇𝗍 !
 
 #
 
