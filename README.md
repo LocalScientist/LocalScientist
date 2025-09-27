@@ -42,6 +42,12 @@
 
    →𝗦𝗢𝗠𝗘← fruitcake shippers
 
+   Xiao yun skins
+
+   ragebait
+
+   bullying
+
 *                              
 
    Add my rblx ^_^
