@@ -35,4 +35,4 @@
 
 
 
-
+![image alt](https://github.com/LocalScientist/LocalScientist/blob/bef434229abaf9327a527e437ce5e99798f00aac/Untitled48_20251004123344.png)
