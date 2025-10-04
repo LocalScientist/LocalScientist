@@ -79,3 +79,6 @@
 
 ![image alt](https://github.com/LocalScientist/LocalScientist/blob/5637cbd9fc533784d336ce8d83512c0dfacd8106/bdc76854efcfeb546bd2f80f9b70edad33b29d98-1.gif)
                  I LOVE YI XI!!!!!!!
+
+
+![image alt](https://github.com/LocalScientist/LocalScientist/blob/18605600a3a2d899d1b6733f6364d4b7847dfc26/Screenshot_2025-09-27-08-14-42-31_40deb401b9ffe8e1df2f1cc5ba480b12.jpg)
