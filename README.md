@@ -5,7 +5,7 @@
 #
 
 
-  ![image alt](https://github.com/LocalScientist/LocalScientist/blob/e862cc621cba9234b2ee4539f6882a1e7d1f505f/24751672d52cac6703a1171d41ee9ad4.jpg
+  ![image alt](https://github.com/LocalScientist/LocalScientist/blob/e862cc621cba9234b2ee4539f6882a1e7d1f505f/24751672d52cac6703a1171d41ee9ad4.jpg) 
 
 
 
