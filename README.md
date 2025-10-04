@@ -28,3 +28,11 @@
 
      
 ![image alt](https://github.com/LocalScientist/LocalScientist/blob/fc0bf744b68a42b883010f3280be7c992293f9d6/heart-locket.gif) 
+
+
+
+
+
+
+
+![image alt](https://github.com/LocalScientist/LocalScientist/blob/0bb94f3e142a176c19214cdd5a0e129bbf52880d/Untitled51_20251004135132.png) 
