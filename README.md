@@ -28,3 +28,4 @@
 
            
    
+![image alt](https://github.com/LocalScientist/LocalScientist/blob/88cd5bad9e3041193806ce6ede81027df4072b5e/Untitled50_20251004134500.png) 
