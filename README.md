@@ -39,7 +39,7 @@ I'm a digital and traditional arts creator! I'm practicing anatomy to improve my
 • If you're afraid to approach me, dw I'm really friendly actually! i also accept those who randomly hide behind me or cuddle, I'm actually comfortable with it! 
 #
 
-• Im a sensitive person!! Raising your voice, yelling at me, being rude or doing mean stuffs to me can cause me to go silent or not in the mood, I can also get upset:(
+• Im a sensitive person!! Raising your voice, yelling at me,sending death threats, slurring at me,being rude or doing mean stuffs to me can cause me to go silent or not in the mood, I can also get upset:(
 
 Ill might also become distant!
 
