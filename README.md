@@ -89,6 +89,21 @@ I love this lovely woman sm, I'm so attached to her, shes littleraly me!!
    • idk
 
    people can int me freely! (except those in the dni list OR if I have dni next to my name) 
+
+#
+
+Add my rblx ^_^
+
+• bunny_xxemectronic
+
+discord !!
+
+:: Definitely_graace
+
+TikTok <3
+
+:: @justanordinaryperson03
+
 #
 
   I love yuri guys👭
