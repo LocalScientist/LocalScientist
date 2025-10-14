@@ -23,6 +23,13 @@ hello!! ^_^
   
    but if I did copy your skins, consider whispering me so that I'm aware! 
 
+   #
+
+   PICTURE OF SHAME!!!! 
+
+![image alt](https://github.com/LocalScientist/LocalScientist/blob/b2593eb84e05e7715b9ab297e9116310eff5107e/Screenshot_2025-10-14-19-58-38-50_6b389ff4d97f38efc4be9d8728ed2f56.jpg) 
+
+
 #
 
      
