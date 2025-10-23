@@ -13,6 +13,4 @@
 ![image alt](https://github.com/LocalScientist/LocalScientist/blob/9308184c17cb76f998e53a03be7b7d9b3c6aae8d/bdc76854efcfeb546bd2f80f9b70edad33b29d98-1.gif) 
 
 
-
-
-hi I'm updating my readme ok bye
+![image alt](https://github.com/LocalScientist/LocalScientist/blob/7e312fd4e452064ff8440e5c9af1bd4c11fd188d/Untitled66_20251023210659.png)
