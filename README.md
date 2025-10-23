@@ -10,6 +10,5 @@
 ![image alt](https://github.com/LocalScientist/LocalScientist/blob/7f8b818d26ccb980327d6237d894c77a3c9521a5/Untitled65_20251023203948.png)
 
 
-![image alt](https://github.com/LocalScientist/LocalScientist/blob/737f420eefb7ccf5274348c94fa606ad3ad6fcf9/bdc76854efcfeb546bd2f80f9b70edad33b29d98-1.gif) 
 
 hi I'm updating my readme ok bye
