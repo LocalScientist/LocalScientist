@@ -7,7 +7,6 @@
 ![image alt](https://github.com/LocalScientist/LocalScientist/blob/7f8b818d26ccb980327d6237d894c77a3c9521a5/Untitled65_20251023203948.png) 
 
 
-![image alt](https://github.com/LocalScientist/LocalScientist/blob/7f8b818d26ccb980327d6237d894c77a3c9521a5/Untitled65_20251023203948.png)
 
 
 
